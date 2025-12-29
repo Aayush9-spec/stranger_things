@@ -152,7 +152,7 @@ Contributions are welcome! If you want to add the *Hellfire Club* membership pag
 
 ### Friends don't lie. 🧇
 
-Made with ❤️ and 💡 by Aayush
+Made with ❤️ and 💡 by Aayush Kumar Singh
 
 </div>
 
